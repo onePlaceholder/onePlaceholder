@@ -13,6 +13,6 @@ my passion **Modding** especially **Minecraft** modding
 here is my **[Modrinth Page](https://modrinth.com/user/thePlaceholder)** *cuz curseforge is bad >:(*
 
 # Others
-[give me your money on](https://ko-fi.com/theplaceholder)
+[give me your money on ko-fi](https://ko-fi.com/theplaceholder)
 
 [**and subscribe on youtube** *I do content (sometimes)*](https://www.youtube.com/channel/UCkOEs5_droCVyvaYb45CsYQ)
