@@ -2,7 +2,6 @@
 yes it's me **but** you may know me by other names :
  - thePlaceholder *(this one)*
  - " " *(only on discord)*
- - someElseIs[Here/There/Dum]
  - Bernard *( for the* **SWD Community** *)*
  - thз r|ppзrdøc *( for the* **Cyberware | Biomechanics** peoples *)*
  - `or my real name if you know me IRL`
